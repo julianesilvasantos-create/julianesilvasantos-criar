@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou [SEU NOME]
+# 👋 Olá, eu sou Juliane
 
 ### [FRASE DE IMPACTO - O QUE VOCÊ TRANSFORMA]
 
